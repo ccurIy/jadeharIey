@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/d7605a8ed49a8fa228909905ccdf5088/cd39364fab4ed5bf-50/s640x960/c3f2a34c043cd888d7e4f002b80215aa6f27ec37.pnj)
 
-(best viewed on pc ...)
+⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=jadehariey&color=dc143c)
 ⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❝ **kissss** me *!* **kiss** *me* with yourr eyes **closed** *!* ❞ 
