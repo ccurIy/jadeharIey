@@ -3,13 +3,13 @@
 (best viewed on pc ...)
 ⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❝ **kissss** me *!* **kiss** *me* with yourr eyes **closed** *!* ❞ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❝ **kissss** me *!* **kiss** *me* with yourr eyes **closed** *!* ❞ 
 ⠀⠀
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/30d1e30cd0449cc1b3b6511026830db2/452d2c753c8897c8-89/s500x750/ae900435a784f4cd90b60642ab942539a03bf60e.gif)⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/30d1e30cd0449cc1b3b6511026830db2/452d2c753c8897c8-89/s500x750/ae900435a784f4cd90b60642ab942539a03bf60e.gif)⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[creds  4 icon . . .](https://www.tumblr.com/boygirl-club/748397427586924544/simon-and-betty-dark-academia-graphics?source=share)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[creds  4 icon . . .](https://www.tumblr.com/boygirl-club/748397427586924544/simon-and-betty-dark-academia-graphics?source=share)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
 
