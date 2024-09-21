@@ -1,15 +1,17 @@
 ⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/d7605a8ed49a8fa228909905ccdf5088/cd39364fab4ed5bf-50/s640x960/c3f2a34c043cd888d7e4f002b80215aa6f27ec37.pnj)
+
+(best viewed on pc ...)
 ⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❝ all it costs is *your* **loveee** *!* ❞ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❝ **kissss** me *!* **kiss** *me* with yourr eyes **closed** *!* ❞ 
 ⠀⠀
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/c505b93150f64f26899614d9df6f823a/b328476771ace80a-01/s400x600/0ab1151e0a7b0a9feb2b050f9787def9b249c8c8.pnj)⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/30d1e30cd0449cc1b3b6511026830db2/452d2c753c8897c8-89/s500x750/ae900435a784f4cd90b60642ab942539a03bf60e.gif)⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[creds  4 icon . . .](https://www.tumblr.com/lavendergalactic/745061266540904448/t-rentry-graphics?source=share)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[creds  4 icon . . .](https://www.tumblr.com/boygirl-club/748397427586924544/simon-and-betty-dark-academia-graphics?source=share)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**jade** ✦ *six* ✦ bas | **its** / he
 
@@ -17,7 +19,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[rntry](https://rentry.co/-splashwave)⠀[ata](https://lovemari.atabook.org)⠀ [luvmail](https://jadezlovemail.straw.page/)⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
 
 ⠀⠀⠀⠀⠀![?](https://64.media.tumblr.com/d7605a8ed49a8fa228909905ccdf5088/cd39364fab4ed5bf-50/s640x960/c3f2a34c043cd888d7e4f002b80215aa6f27ec37.pnj)
 
