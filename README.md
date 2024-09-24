@@ -17,7 +17,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**sys**-*host* ✦ audhd ✦ #1 **pjo** fan on pt *!*
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[rntry](https://rentry.co/-splashwave)⠀[ata](https://lovemari.atabook.org)⠀ [luvmail](https://jadezlovemail.straw.page/)⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[rntry](https://rentry.co/futabavirus)⠀[ata](https://lovemari.atabook.org)⠀ [luvmail](https://jadezlovemail.straw.page/)⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────────୨ৎ────────
 
